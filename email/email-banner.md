@@ -1,1 +1,1 @@
-![email-banner](https://github.com/AXYS-Creative/images/assets/147758475/d9421930-dc39-4f00-84aa-2e2c4bfcd257)
+![email-banner](https://github.com/AXYS-Creative/images/assets/147758475/4e1dc127-b4a9-4d56-b48e-f86c3e9f6e27)
